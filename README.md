@@ -10,3 +10,6 @@ Wish we have a great time!
 hi,everyone,i'm very happy to study with you in the future.
 wish we all make great progress in our furure studies!
 yeah~~
+#yanjin
+Happy to study with you all.
+Let's make great progress in our furure studies，kindguys...
